@@ -1,4 +1,4 @@
-#**Privacy Policy for Reel Insight**
+#Privacy Policy for Reel Insight
 
 **Privacy Policy**
 Last updated: May 26, 2024
